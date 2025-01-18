@@ -1,3 +1,4 @@
 # Week-1 
-This is Musashi's World ur just living it
-sdhfkhvsdskhdfksh
+This is Musashi's World ur just living it..........
+               Everything is Temporary in this illusionary world --        
+                                             But not me.........
